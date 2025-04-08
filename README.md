@@ -1,2 +1,2 @@
 # ddripp.github.io
-[@demonsheadgames](https://x.com/demonsheadgames).
+# [@DEMONSHEADGAMES](https://x.com/demonsheadgames)
